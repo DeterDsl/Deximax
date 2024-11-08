@@ -1,2 +1,2 @@
 # Deximax
-By irgal and nzx
+acabou.
